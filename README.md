@@ -1,2 +1,0 @@
-# rasenplanscher.info
-rasenplanscher.info
